@@ -2,4 +2,4 @@
 *~
 
 # ignore pdf files
-01geography/pdfs/
+*.pdf
