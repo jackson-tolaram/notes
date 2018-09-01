@@ -29,10 +29,4 @@ Top Up: You will get only 1L for the first and nothing for the second as in case
 
 ## Sources
 
-[1](https://www.reddit.com/r/IndiaInvestments/comments/7arp3x/can_someone_link_me_a_good_guide_to_choose_health/)
-
-[2](https://freefincal.com/how-to-buy-mediclaim-health-insurance-policy/)
-
-[3](https://www.personalfinanceplan.in/?s=health+insurance)
-
-[4](https://freefincal.com/selected-health-insurance-policy/)
+[1](https://www.reddit.com/r/IndiaInvestments/comments/7arp3x/can_someone_link_me_a_good_guide_to_choose_health/) [2](https://freefincal.com/how-to-buy-mediclaim-health-insurance-policy/) [3](https://www.personalfinanceplan.in/?s=health+insurance) [4](https://freefincal.com/selected-health-insurance-policy/)

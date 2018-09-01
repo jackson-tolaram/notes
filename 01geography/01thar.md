@@ -1,6 +1,6 @@
 # THAR Desert
 
-These are notes on the thar desert. I will especially try to learn and take notes on the origin of that thar desert
+These are notes on the thar desert. I will especially try to learn and take notes on the orgin of the thar desert
 
 ### Resources
 Below is a list of resources/publications that I found to be relevant
